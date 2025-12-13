@@ -1,3 +1,2 @@
-────୨ৎ────
 
-![Image](https://github.com/user-attachments/assets/a6cc106c-f523-4876-8e10-f82fd37302d1)
+![Image](https://github.com/user-attachments/assets/215b7d5e-79fc-4d96-a826-5ae9f805d57d)
